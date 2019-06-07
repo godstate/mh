@@ -23,7 +23,7 @@
 •	迫害恶行的描述和证据（恶行的类型见下）
 •	国外资产情况
 
-注意事项：见附表中的说明
+注意事项：见附表格 中的说明
 
 明慧网举报恶人信息表格    	<a href="https://github.com/szzd2/mh/raw/master/jubao-biao-doc-20190602.doc">Word文件</a>	   <a href="https://github.com/szzd2/mh/blob/master/jubao-biao-pdf-20190602.pdf">Pdf文件</a>	   <a href="https://github.com/szzd2/mh/raw/master/jubao-biao-20190602.zip">Zip文件</a>	     (2019年6月2日更新)
 
